@@ -36,15 +36,15 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 1위 — (리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25127602117&vendorItemId=92603178831" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1n_Eq7HCZ63c4P_8M5esfTsC-tkHKqAzxAqGD7tx-5Xg7AB8E-2opZN8EJrz0pAziyFMDWVMiy4aCLYyaPg5kAiKqelEjL4ftA9V5yUu8Cy_ltxcGRTRwojo-nZgZEP70gsuu32jSFjzW79U2BQB-k2WNWkIvaXRZCiZhgZOVdQgZHaG3kee49qWAopXwZfv21pq0JXKFkMhTWvLKxo5UrsjF_pZClEK98jkDht9ROtS5Zem91VJDHpwLwvxGkhlwnOZtfDmMQnXuvwC5fWDPw3qz-Mpbdau9pFIuk1Z1hnvikp27EYIw==" alt="1위 - (리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더" style="max-width:280px;height:auto;float:left;margin:0 16px 12px 0;border-radius:8px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1n_Eq7HCZ63c4P_8M5esfTsC-tkHKqAzxAqGD7tx-5Xg7AB8E-2opZN8EJrz0pAziyFMDWVMiy4aCLYyaPg5kAiKqelEjL4ftA9V5yUu8Cy_ltxcGRTRwojo-nZgZEP70gsuu32jSFjzW79U2BQB-k2WNWkIvaXRZCiZhgZOVdQgZHaG3kee49qWAopXwZfv21pq0JXKFkMhTWvLKxo5UrsjF_pZClEK98jkDht9ROtS5Zem91VJDHpwLwvxGkhlwnOZtfDmMQnXuvwC5fWDPw3qz-Mpbdau9pFIuk1Z1hnvikp27EYIw==" alt="1위 - (리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더" style="max-width:280px;height:auto;float:left;margin:0 16px 12px 0;border-radius:8px;"></a>
 
-[**(리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25127602117&vendorItemId=92603178831)
+[**(리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **45000원**
 
 > **이 상품을 추천하는 이유**: 새롭게 리뉴얼된 파우더로 미세한 입자가 모공과 요철을 촘촘하게 메워 줍니다. 하루 종일 번들거림 없이 보송하고 매끄러운 피부결을 완성해 주어 강력히 추천해 드립니다.
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25127602117&vendorItemId=92603178831" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:8px 18px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:14px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:8px 18px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:14px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -52,15 +52,15 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 2위 — 클라랑스 픽스 메이크업, 50ml, 1개
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=23774889063&vendorItemId=91329032769" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/sSC5ZIx4FiTOJ6PLsTGWnfn8iWJDMwdCG7lZhx8o3cwSD714bEiyDgRuZjFRbDxLVNc9l1lX09do_KYgNJndK766KWD93FvloxPymkBa9OogsN3YZPXi9igjHBf-499IDLemENmLp2inso9Jx5uKDY3Q_xEvDRq_y6YQpStBA2JijutW7b_YozCl1mcXXPByJ4E-3QM6E2Pldl0A7-QjHpEVSdNzTYHd0UqNUzLQkzv38Lb12C-LNgeZDDULSX18QaJEtBEXeEKnpoc0dUl2pc4p06wdRLktSgIMzHNufZPWzsegycWqCInzNdUtsX9H7V4=" alt="2위 - 클라랑스 픽스 메이크업, 50ml, 1개" style="max-width:280px;height:auto;float:right;margin:0 16px 12px 0;border-radius:8px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/sSC5ZIx4FiTOJ6PLsTGWnfn8iWJDMwdCG7lZhx8o3cwSD714bEiyDgRuZjFRbDxLVNc9l1lX09do_KYgNJndK766KWD93FvloxPymkBa9OogsN3YZPXi9igjHBf-499IDLemENmLp2inso9Jx5uKDY3Q_xEvDRq_y6YQpStBA2JijutW7b_YozCl1mcXXPByJ4E-3QM6E2Pldl0A7-QjHpEVSdNzTYHd0UqNUzLQkzv38Lb12C-LNgeZDDULSX18QaJEtBEXeEKnpoc0dUl2pc4p06wdRLktSgIMzHNufZPWzsegycWqCInzNdUtsX9H7V4=" alt="2위 - 클라랑스 픽스 메이크업, 50ml, 1개" style="max-width:280px;height:auto;float:right;margin:0 16px 12px 0;border-radius:8px;"></a>
 
-[**클라랑스 픽스 메이크업, 50ml, 1개**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=23774889063&vendorItemId=91329032769)
+[**클라랑스 픽스 메이크업, 50ml, 1개**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **38250원**
 
 > **이 상품을 추천하는 이유**: 메이크업 마지막 단계에서 뿌려주면 화장의 지속력을 획기적으로 높여주는 미스트형 픽서입니다. 수분 공급과 동시에 무너짐 없는 완벽한 고정 효과를 선사합니다.
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=23774889063&vendorItemId=91329032769" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:8px 18px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:14px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:8px 18px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:14px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -68,15 +68,15 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 3위 — 아멜리 베이크드파우더, 002 라이트핑크, 1개
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=27104832359&vendorItemId=94072968720" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/bsKw6rHf1MY_K5R_bqjS15i_eCtov7aFxstJ2RALrSFw-J0Vx5KXHqktUJBJWOsAq2hzHb9DZWmDG_oFPyd3fX9-6E7hDypYTbCdn9WkxPmMyklJgkgPIV5uUwPwvCH3YfGIB937hllkDJRFCLMp-dvRiShB0vpcVZQnBgEOC7Itdv194hJJso-8yOlzrKINks0J2sQ-iq0HxDv7tNxs-NPVzlEeaRRlUiuAhg3mjKlJJ3RUFBRV13ZgeoJQ-XKXYZ_dSNCjODZt7zbpDKBWJAp4JS9XUxiUc0YXEhPdhCqx-MM=" alt="3위 - 아멜리 베이크드파우더, 002 라이트핑크, 1개" style="max-width:280px;height:auto;float:left;margin:0 16px 12px 0;border-radius:8px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/bsKw6rHf1MY_K5R_bqjS15i_eCtov7aFxstJ2RALrSFw-J0Vx5KXHqktUJBJWOsAq2hzHb9DZWmDG_oFPyd3fX9-6E7hDypYTbCdn9WkxPmMyklJgkgPIV5uUwPwvCH3YfGIB937hllkDJRFCLMp-dvRiShB0vpcVZQnBgEOC7Itdv194hJJso-8yOlzrKINks0J2sQ-iq0HxDv7tNxs-NPVzlEeaRRlUiuAhg3mjKlJJ3RUFBRV13ZgeoJQ-XKXYZ_dSNCjODZt7zbpDKBWJAp4JS9XUxiUc0YXEhPdhCqx-MM=" alt="3위 - 아멜리 베이크드파우더, 002 라이트핑크, 1개" style="max-width:280px;height:auto;float:left;margin:0 16px 12px 0;border-radius:8px;"></a>
 
-[**아멜리 베이크드파우더, 002 라이트핑크, 1개**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=27104832359&vendorItemId=94072968720)
+[**아멜리 베이크드파우더, 002 라이트핑크, 1개**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **33100원**
 
 > **이 상품을 추천하는 이유**: 화사한 핑크빛 생기를 더해주는 베이크드 타입 파우더입니다. 건조함 없이 불필요한 유분만 싹 잡아주어 맑고 깨끗한 피부톤을 연출하고 싶은 분께 적합합니다.
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=27104832359&vendorItemId=94072968720" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:8px 18px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:14px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:8px 18px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:14px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -87,13 +87,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 4위 — 에뛰드 그림자 쉐딩 10g + 01 턱브러쉬 기획 세트, 1호재
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=11359071197&vendorItemId=78635415723" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/e_bC3HuqOtwU6qTFe1fbjx5w-qNKYN_W-Q6trtUmdjwhXG3g6kQ6UE2UWeGKHnDGPxTpnPWDk9maG9TfxJU0MWOKiD2g8OyyQRNOXouuelWw5zsUTRJJiD4R-w4ZCChhEQtJOuS0aF30SHD_8gCjASW4UabMB0vrgGL3DLac3DC5xc7n6bh_iJ6DCsd8BAa8FEKw8R6E7NIH5ZCd4ZvngEH9OWToq-hXP7xlqdEyE35Y-ISGS0tYpykyObYiQsqcdv9xu0xb_pBHZ3O2Zn5mFLeiz_y6hM1nHYGwNv5h6Pu5" alt="4위 - 에뛰드 그림자 쉐딩 10g + 01 턱브러쉬 기획 세트, 1호재창조, 1개" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/e_bC3HuqOtwU6qTFe1fbjx5w-qNKYN_W-Q6trtUmdjwhXG3g6kQ6UE2UWeGKHnDGPxTpnPWDk9maG9TfxJU0MWOKiD2g8OyyQRNOXouuelWw5zsUTRJJiD4R-w4ZCChhEQtJOuS0aF30SHD_8gCjASW4UabMB0vrgGL3DLac3DC5xc7n6bh_iJ6DCsd8BAa8FEKw8R6E7NIH5ZCd4ZvngEH9OWToq-hXP7xlqdEyE35Y-ISGS0tYpykyObYiQsqcdv9xu0xb_pBHZ3O2Zn5mFLeiz_y6hM1nHYGwNv5h6Pu5" alt="4위 - 에뛰드 그림자 쉐딩 10g + 01 턱브러쉬 기획 세트, 1호재창조, 1개" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**에뛰드 그림자 쉐딩 10g + 01 턱브러쉬 기획 세트, 1호재창조, 1개**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=11359071197&vendorItemId=78635415723)
+[**에뛰드 그림자 쉐딩 10g + 01 턱브러쉬 기획 세트, 1호재창조, 1개**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **15900원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=11359071197&vendorItemId=78635415723" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -101,13 +101,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 5위 — 시세이도 스팟 커버 파운데이션 20g, S100, 6개
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=19167548826&vendorItemId=86285861411" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/vakPO3Orz10eNmX1vY1AhynEpQXjF2gtdLNkgXTB3VgmQCPzFCgkOmp7awbpXjF5dbt7XbIyDKvNM3cC7pHH-coIs9xNZF97xwph21q8VjPjH_4N9KpmPBpl2LftG6rr_RuROvL7CA6ioTDCEb0InFSEuuMZKGf6VV5OILwGbxNC3RPCdTNcAAFjwWiBjBKdVqMjjYsnE8uHjOaZ3aHBN61vk2ZkvCnmUXWrG8Lp_wx3Yfnt9A1JUTXY7p-xowMmxHbji4tHDIOLdtTQ9kQvrx9zOXY8v_dsHtV0W9g5BN0_Sw==" alt="5위 - 시세이도 스팟 커버 파운데이션 20g, S100, 6개" style="max-width:200px;height:auto;float:left;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/vakPO3Orz10eNmX1vY1AhynEpQXjF2gtdLNkgXTB3VgmQCPzFCgkOmp7awbpXjF5dbt7XbIyDKvNM3cC7pHH-coIs9xNZF97xwph21q8VjPjH_4N9KpmPBpl2LftG6rr_RuROvL7CA6ioTDCEb0InFSEuuMZKGf6VV5OILwGbxNC3RPCdTNcAAFjwWiBjBKdVqMjjYsnE8uHjOaZ3aHBN61vk2ZkvCnmUXWrG8Lp_wx3Yfnt9A1JUTXY7p-xowMmxHbji4tHDIOLdtTQ9kQvrx9zOXY8v_dsHtV0W9g5BN0_Sw==" alt="5위 - 시세이도 스팟 커버 파운데이션 20g, S100, 6개" style="max-width:200px;height:auto;float:left;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**시세이도 스팟 커버 파운데이션 20g, S100, 6개**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=19167548826&vendorItemId=86285861411)
+[**시세이도 스팟 커버 파운데이션 20g, S100, 6개**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **65230원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=19167548826&vendorItemId=86285861411" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -115,13 +115,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 6위 — (백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=20900595504&vendorItemId=95305573982" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/wTXpDUHGCcy0PNkOwe2XvBd_jClDGVsHdvRt7Ld-5PTyNluUR5p4ikC59SVrl-4apCUGhf6CjCGrqATgdLIx0V5F7hu5OifMPaKmzzSFxXLj0m7XkwarZ9ZGB0Fgs1bZg29mQgQhKuDgVrMTR2tnofJvgoNDsJ3l1CUdurmjHB7phAU17GNGDGS5b3UNzVg9hXsNq4YsFSMZ9rQaPysxhligxAYLXkUYP3EXZmdgYFOoM55421IeBpRGtSev0KBtAp3MHVwdZZj2Sw_4o4dfA_FEEn3dFYZIl5bESvlthjHhd6Pu2mmWhazo-nKgeMGgdmpE1mmJzcKF2l1S3g==" alt="6위 - (백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/wTXpDUHGCcy0PNkOwe2XvBd_jClDGVsHdvRt7Ld-5PTyNluUR5p4ikC59SVrl-4apCUGhf6CjCGrqATgdLIx0V5F7hu5OifMPaKmzzSFxXLj0m7XkwarZ9ZGB0Fgs1bZg29mQgQhKuDgVrMTR2tnofJvgoNDsJ3l1CUdurmjHB7phAU17GNGDGS5b3UNzVg9hXsNq4YsFSMZ9rQaPysxhligxAYLXkUYP3EXZmdgYFOoM55421IeBpRGtSev0KBtAp3MHVwdZZj2Sw_4o4dfA_FEEn3dFYZIl5bESvlthjHhd6Pu2mmWhazo-nKgeMGgdmpE1mmJzcKF2l1S3g==" alt="6위 - (백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**(백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=20900595504&vendorItemId=95305573982)
+[**(백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **35640원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=20900595504&vendorItemId=95305573982" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -129,13 +129,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 7위 — (리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25244167764&vendorItemId=94966366004" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/fX1TsQw5TE6hwKgnfWRK9M3N6VYfl6XoBE59y430Nbf9bz--teOMkc95EvZvfXz8TbAa6j2YTCSWRtAnUF5RfOc0tHo0X-48GFzaf_0nqzsNB61VjOKU8puhk3SLpGuS01-ySE4OWfXnUhnGv8Iabh2y4_qe9UsP640qDuy3ot-ZVsmzpOptqj2GKfRPCiU6JNYGUD0U8vQv4ftfX_CwOw4ie8REYk-eSO67cw5_GGLBC3KBHDxWjn-xEQ5LfvTHFonvH8xqIBqGjf6R03VFmwsS4r3BtrFwnMWfwSFJf9-bmAbt8QZztXRsYVj9ePj8QwKI7gKZSbp8SYaldq4=" alt="7위 - (리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더" style="max-width:200px;height:auto;float:left;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/fX1TsQw5TE6hwKgnfWRK9M3N6VYfl6XoBE59y430Nbf9bz--teOMkc95EvZvfXz8TbAa6j2YTCSWRtAnUF5RfOc0tHo0X-48GFzaf_0nqzsNB61VjOKU8puhk3SLpGuS01-ySE4OWfXnUhnGv8Iabh2y4_qe9UsP640qDuy3ot-ZVsmzpOptqj2GKfRPCiU6JNYGUD0U8vQv4ftfX_CwOw4ie8REYk-eSO67cw5_GGLBC3KBHDxWjn-xEQ5LfvTHFonvH8xqIBqGjf6R03VFmwsS4r3BtrFwnMWfwSFJf9-bmAbt8QZztXRsYVj9ePj8QwKI7gKZSbp8SYaldq4=" alt="7위 - (리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더" style="max-width:200px;height:auto;float:left;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**(리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25244167764&vendorItemId=94966366004)
+[**(리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **44380원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25244167764&vendorItemId=94966366004" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -143,13 +143,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 8위 — (백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25319445772&vendorItemId=92715394494" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/vS9LNlxMLkpM15u_venpCbBxHQfEdxEPO9qFkdM7MSOfWISXDSnpplyzzmKEN9MEeXzS3F-xPzmxqbkIQfud1IOHdDuznKLojZUpg7AQEIdpPzL3XooD1OLi0pF_9cCHvzcmjV5fGiw_3PshdnpanKxpdcXiygh2VNnmpFzg9_fxST22eW5kX4xQPMBbYl6R41xkq3LyhddAv6o1aPThbGBgmuU9s2Zrgkpq8KfhPGff5MbrXu0zKToy2_15PDMJLlOPP9aG2rgtIChrXHG1BnRQDMyTL6Rk8KyqnTGbMjuY9ZqV64lnWE0n1ZC1AqJXyh2z4U90ZuknUi1fLA==" alt="8위 - (백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/vS9LNlxMLkpM15u_venpCbBxHQfEdxEPO9qFkdM7MSOfWISXDSnpplyzzmKEN9MEeXzS3F-xPzmxqbkIQfud1IOHdDuznKLojZUpg7AQEIdpPzL3XooD1OLi0pF_9cCHvzcmjV5fGiw_3PshdnpanKxpdcXiygh2VNnmpFzg9_fxST22eW5kX4xQPMBbYl6R41xkq3LyhddAv6o1aPThbGBgmuU9s2Zrgkpq8KfhPGff5MbrXu0zKToy2_15PDMJLlOPP9aG2rgtIChrXHG1BnRQDMyTL6Rk8KyqnTGbMjuY9ZqV64lnWE0n1ZC1AqJXyh2z4U90ZuknUi1fLA==" alt="8위 - (백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**(백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25319445772&vendorItemId=92715394494)
+[**(백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **43300원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25319445772&vendorItemId=92715394494" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -157,13 +157,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 9위 — 1R02 메이크업포에버 HD SKIN 쿠션 리필 15g
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=28565620729&vendorItemId=95510089995" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/wN5fh1mFSTUFYcwUwCluQegaxNG1Xt8N7-f1rpiyfeMZ1gXnibbOurPFk2uZXUQYvc9j7vMO5tXoj2ugc4aREaJghlsKWcl3BQy_VRA3r1BcaNwhGtkpoKtr2jV2UDlXaNTCfnDhqkK7vcehJo_Kaeep9HLfebcqCQjY5m4S5PmvbHXTiPHinvFwGmiUnKhJt9UO9Ka5RWynzNnOd8lEYHZwFwBpk7keA5Ge9Bvkr5pY0ITr0v9_M8Vovkm8HvYEgWq9HCVgTKovZFSJDjmwMhFBvtpMJb7NdOayn_rNXE268Qsh_c98FRbkIXEpQ4U0ZC-BaIvLQ7YFeciJ4w==" alt="9위 - 1R02 메이크업포에버 HD SKIN 쿠션 리필 15g" style="max-width:200px;height:auto;float:left;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/wN5fh1mFSTUFYcwUwCluQegaxNG1Xt8N7-f1rpiyfeMZ1gXnibbOurPFk2uZXUQYvc9j7vMO5tXoj2ugc4aREaJghlsKWcl3BQy_VRA3r1BcaNwhGtkpoKtr2jV2UDlXaNTCfnDhqkK7vcehJo_Kaeep9HLfebcqCQjY5m4S5PmvbHXTiPHinvFwGmiUnKhJt9UO9Ka5RWynzNnOd8lEYHZwFwBpk7keA5Ge9Bvkr5pY0ITr0v9_M8Vovkm8HvYEgWq9HCVgTKovZFSJDjmwMhFBvtpMJb7NdOayn_rNXE268Qsh_c98FRbkIXEpQ4U0ZC-BaIvLQ7YFeciJ4w==" alt="9위 - 1R02 메이크업포에버 HD SKIN 쿠션 리필 15g" style="max-width:200px;height:auto;float:left;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**1R02 메이크업포에버 HD SKIN 쿠션 리필 15g**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=28565620729&vendorItemId=95510089995)
+[**1R02 메이크업포에버 HD SKIN 쿠션 리필 15g**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **34900원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=28565620729&vendorItemId=95510089995" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -171,13 +171,13 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
 
 ### 10위 — 메이크업포에버 NEW 아티스트 컬러 크레용
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25861395084&vendorItemId=95422312453" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/DsOPHBFnAyY069xyDqUZEIvbxUy9ovoPqjg7CvqckyfT2tnNRV09v-407T5DUzTEM7B7jHfEZMxqBFLTMhU9kTw8xNttTLF3VAw_xZLljXKqq4yWrArAqMYJZK8Lm4MH0HDWoyYxYOmTbyiRrBzs7PApXDglHjS4z8lirBNE9pFdp7Ap6EShhteu5SiYo4lSNGcGCme3eNowjYrrqm_c7zCZNhv397S92nMQIZkInq7RQLf3-HxQS5EFuKxYTbI-3BmOovBNMlhkROrmQFM7PaYRpnobhicF75WczFsIacX-uWhXaoJ84eq9y1oZhH-Lq-TnqW_C31d0zPS_gXIi" alt="10위 - 메이크업포에버 NEW 아티스트 컬러 크레용" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener"><img src="https://ads-partners.coupang.com/image1/DsOPHBFnAyY069xyDqUZEIvbxUy9ovoPqjg7CvqckyfT2tnNRV09v-407T5DUzTEM7B7jHfEZMxqBFLTMhU9kTw8xNttTLF3VAw_xZLljXKqq4yWrArAqMYJZK8Lm4MH0HDWoyYxYOmTbyiRrBzs7PApXDglHjS4z8lirBNE9pFdp7Ap6EShhteu5SiYo4lSNGcGCme3eNowjYrrqm_c7zCZNhv397S92nMQIZkInq7RQLf3-HxQS5EFuKxYTbI-3BmOovBNMlhkROrmQFM7PaYRpnobhicF75WczFsIacX-uWhXaoJ84eq9y1oZhH-Lq-TnqW_C31d0zPS_gXIi" alt="10위 - 메이크업포에버 NEW 아티스트 컬러 크레용" style="max-width:200px;height:auto;float:right;margin:0 12px 10px 0;border-radius:6px;"></a>
 
-[**메이크업포에버 NEW 아티스트 컬러 크레용**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25861395084&vendorItemId=95422312453)
+[**메이크업포에버 NEW 아티스트 컬러 크레용**](https://link.coupang.com/a/esd7gqxTJk)
 
 - 가격: **44900원**
 
-<a href="https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25861395084&vendorItemId=95422312453" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
+<a href="https://link.coupang.com/a/esd7gqxTJk" target="_blank" rel="nofollow sponsored noopener" style="display:inline-block;padding:6px 14px;background:#e4000f;color:#fff;border-radius:6px;text-decoration:none;font-weight:bold;font-size:13px;">👉 상품 보기</a>
 
 <div style="clear:both;"></div>
 
@@ -203,7 +203,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "(리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25127602117&vendorItemId=92603178831",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1n_Eq7HCZ63c4P_8M5esfTsC-tkHKqAzxAqGD7tx-5Xg7AB8E-2opZN8EJrz0pAziyFMDWVMiy4aCLYyaPg5kAiKqelEjL4ftA9V5yUu8Cy_ltxcGRTRwojo-nZgZEP70gsuu32jSFjzW79U2BQB-k2WNWkIvaXRZCiZhgZOVdQgZHaG3kee49qWAopXwZfv21pq0JXKFkMhTWvLKxo5UrsjF_pZClEK98jkDht9ROtS5Zem91VJDHpwLwvxGkhlwnOZtfDmMQnXuvwC5fWDPw3qz-Mpbdau9pFIuk1Z1hnvikp27EYIw=="
       }
     },
@@ -213,7 +213,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "클라랑스 픽스 메이크업, 50ml, 1개",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=23774889063&vendorItemId=91329032769",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/sSC5ZIx4FiTOJ6PLsTGWnfn8iWJDMwdCG7lZhx8o3cwSD714bEiyDgRuZjFRbDxLVNc9l1lX09do_KYgNJndK766KWD93FvloxPymkBa9OogsN3YZPXi9igjHBf-499IDLemENmLp2inso9Jx5uKDY3Q_xEvDRq_y6YQpStBA2JijutW7b_YozCl1mcXXPByJ4E-3QM6E2Pldl0A7-QjHpEVSdNzTYHd0UqNUzLQkzv38Lb12C-LNgeZDDULSX18QaJEtBEXeEKnpoc0dUl2pc4p06wdRLktSgIMzHNufZPWzsegycWqCInzNdUtsX9H7V4="
       }
     },
@@ -223,7 +223,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "아멜리 베이크드파우더, 002 라이트핑크, 1개",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=27104832359&vendorItemId=94072968720",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/bsKw6rHf1MY_K5R_bqjS15i_eCtov7aFxstJ2RALrSFw-J0Vx5KXHqktUJBJWOsAq2hzHb9DZWmDG_oFPyd3fX9-6E7hDypYTbCdn9WkxPmMyklJgkgPIV5uUwPwvCH3YfGIB937hllkDJRFCLMp-dvRiShB0vpcVZQnBgEOC7Itdv194hJJso-8yOlzrKINks0J2sQ-iq0HxDv7tNxs-NPVzlEeaRRlUiuAhg3mjKlJJ3RUFBRV13ZgeoJQ-XKXYZ_dSNCjODZt7zbpDKBWJAp4JS9XUxiUc0YXEhPdhCqx-MM="
       }
     },
@@ -233,7 +233,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "에뛰드 그림자 쉐딩 10g + 01 턱브러쉬 기획 세트, 1호재창조, 1개",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=11359071197&vendorItemId=78635415723",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/e_bC3HuqOtwU6qTFe1fbjx5w-qNKYN_W-Q6trtUmdjwhXG3g6kQ6UE2UWeGKHnDGPxTpnPWDk9maG9TfxJU0MWOKiD2g8OyyQRNOXouuelWw5zsUTRJJiD4R-w4ZCChhEQtJOuS0aF30SHD_8gCjASW4UabMB0vrgGL3DLac3DC5xc7n6bh_iJ6DCsd8BAa8FEKw8R6E7NIH5ZCd4ZvngEH9OWToq-hXP7xlqdEyE35Y-ISGS0tYpykyObYiQsqcdv9xu0xb_pBHZ3O2Zn5mFLeiz_y6hM1nHYGwNv5h6Pu5"
       }
     },
@@ -243,7 +243,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "시세이도 스팟 커버 파운데이션 20g, S100, 6개",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=19167548826&vendorItemId=86285861411",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/vakPO3Orz10eNmX1vY1AhynEpQXjF2gtdLNkgXTB3VgmQCPzFCgkOmp7awbpXjF5dbt7XbIyDKvNM3cC7pHH-coIs9xNZF97xwph21q8VjPjH_4N9KpmPBpl2LftG6rr_RuROvL7CA6ioTDCEb0InFSEuuMZKGf6VV5OILwGbxNC3RPCdTNcAAFjwWiBjBKdVqMjjYsnE8uHjOaZ3aHBN61vk2ZkvCnmUXWrG8Lp_wx3Yfnt9A1JUTXY7p-xowMmxHbji4tHDIOLdtTQ9kQvrx9zOXY8v_dsHtV0W9g5BN0_Sw=="
       }
     },
@@ -253,7 +253,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "(백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=20900595504&vendorItemId=95305573982",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/wTXpDUHGCcy0PNkOwe2XvBd_jClDGVsHdvRt7Ld-5PTyNluUR5p4ikC59SVrl-4apCUGhf6CjCGrqATgdLIx0V5F7hu5OifMPaKmzzSFxXLj0m7XkwarZ9ZGB0Fgs1bZg29mQgQhKuDgVrMTR2tnofJvgoNDsJ3l1CUdurmjHB7phAU17GNGDGS5b3UNzVg9hXsNq4YsFSMZ9rQaPysxhligxAYLXkUYP3EXZmdgYFOoM55421IeBpRGtSev0KBtAp3MHVwdZZj2Sw_4o4dfA_FEEn3dFYZIl5bESvlthjHhd6Pu2mmWhazo-nKgeMGgdmpE1mmJzcKF2l1S3g=="
       }
     },
@@ -263,7 +263,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "(리뉴얼VER)메이크업 포에버NEW HD SKIN 퍼펙팅 프레스드 파우더",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25244167764&vendorItemId=94966366004",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/fX1TsQw5TE6hwKgnfWRK9M3N6VYfl6XoBE59y430Nbf9bz--teOMkc95EvZvfXz8TbAa6j2YTCSWRtAnUF5RfOc0tHo0X-48GFzaf_0nqzsNB61VjOKU8puhk3SLpGuS01-ySE4OWfXnUhnGv8Iabh2y4_qe9UsP640qDuy3ot-ZVsmzpOptqj2GKfRPCiU6JNYGUD0U8vQv4ftfX_CwOw4ie8REYk-eSO67cw5_GGLBC3KBHDxWjn-xEQ5LfvTHFonvH8xqIBqGjf6R03VFmwsS4r3BtrFwnMWfwSFJf9-bmAbt8QZztXRsYVj9ePj8QwKI7gKZSbp8SYaldq4="
       }
     },
@@ -273,7 +273,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "(백화점정품)메이크업포에버HD SKIN 쿠션 [5가지 쉐이드]",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25319445772&vendorItemId=92715394494",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/vS9LNlxMLkpM15u_venpCbBxHQfEdxEPO9qFkdM7MSOfWISXDSnpplyzzmKEN9MEeXzS3F-xPzmxqbkIQfud1IOHdDuznKLojZUpg7AQEIdpPzL3XooD1OLi0pF_9cCHvzcmjV5fGiw_3PshdnpanKxpdcXiygh2VNnmpFzg9_fxST22eW5kX4xQPMBbYl6R41xkq3LyhddAv6o1aPThbGBgmuU9s2Zrgkpq8KfhPGff5MbrXu0zKToy2_15PDMJLlOPP9aG2rgtIChrXHG1BnRQDMyTL6Rk8KyqnTGbMjuY9ZqV64lnWE0n1ZC1AqJXyh2z4U90ZuknUi1fLA=="
       }
     },
@@ -283,7 +283,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "1R02 메이크업포에버 HD SKIN 쿠션 리필 15g",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=28565620729&vendorItemId=95510089995",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/wN5fh1mFSTUFYcwUwCluQegaxNG1Xt8N7-f1rpiyfeMZ1gXnibbOurPFk2uZXUQYvc9j7vMO5tXoj2ugc4aREaJghlsKWcl3BQy_VRA3r1BcaNwhGtkpoKtr2jV2UDlXaNTCfnDhqkK7vcehJo_Kaeep9HLfebcqCQjY5m4S5PmvbHXTiPHinvFwGmiUnKhJt9UO9Ka5RWynzNnOd8lEYHZwFwBpk7keA5Ge9Bvkr5pY0ITr0v9_M8Vovkm8HvYEgWq9HCVgTKovZFSJDjmwMhFBvtpMJb7NdOayn_rNXE268Qsh_c98FRbkIXEpQ4U0ZC-BaIvLQ7YFeciJ4w=="
       }
     },
@@ -293,7 +293,7 @@ images: ["https://ads-partners.coupang.com/image1/eU0mbfdire4PzIU5edh5hK2rhhCJz1
       "item": {
         "@type": "Product",
         "name": "메이크업포에버 NEW 아티스트 컬러 크레용",
-        "url": "https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubgithub&pageKey=0&traceid=V0-153&itemId=25861395084&vendorItemId=95422312453",
+        "url": "https://link.coupang.com/a/esd7gqxTJk",
         "image": "https://ads-partners.coupang.com/image1/DsOPHBFnAyY069xyDqUZEIvbxUy9ovoPqjg7CvqckyfT2tnNRV09v-407T5DUzTEM7B7jHfEZMxqBFLTMhU9kTw8xNttTLF3VAw_xZLljXKqq4yWrArAqMYJZK8Lm4MH0HDWoyYxYOmTbyiRrBzs7PApXDglHjS4z8lirBNE9pFdp7Ap6EShhteu5SiYo4lSNGcGCme3eNowjYrrqm_c7zCZNhv397S92nMQIZkInq7RQLf3-HxQS5EFuKxYTbI-3BmOovBNMlhkROrmQFM7PaYRpnobhicF75WczFsIacX-uWhXaoJ84eq9y1oZhH-Lq-TnqW_C31d0zPS_gXIi"
       }
     }
