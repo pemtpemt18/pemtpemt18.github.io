@@ -6,8 +6,8 @@ categories: ["shopping"]
 tags: ["Top10", "shopping", "ahc선크림"]
 keywords: ["ahc선크림", "Top10", "shopping"]
 author: "pemtpemt18"
-description: "@media(max-width:480px){.cpg-img{float:none!important;max-width:100%!important;width:100%;margin:0 0…"
-summary: "@media(max-width:480px){.cpg-img{float:none!important;max-width:100%!important;width:100%;margin:0 0…"
+description: "ahc선크림 인기 상품을 가격·평점·리뷰 기준으로 정리한 TOP10 추천 리스트입니다. 여름철 뜨거운 자외선으로부터 피부를 보호하기 위해 선크림은 필수적입니다. 특히 많은 사랑을 받는 ahc선크림을 고를 때는 강력한 자외선 차단 지수, 촉촉한 수분감, 그리고…"
+summary: "ahc선크림 인기 상품을 가격·평점·리뷰 기준으로 정리한 TOP10 추천 리스트입니다. 여름철 뜨거운 자외선으로부터 피부를 보호하기 위해 선크림은 필수적입니다. 특히 많은 사랑을 받는 ahc선크림을 고를 때는 강력한 자외선 차단 지수, 촉촉한 수분감, 그리고…"
 cover:
   image: "https://ads-partners.coupang.com/image1/GyYdi-rX1f4bJXZuG6YxXbpfWkJm419vkTEt5MAyMDooxV5now3KEwzUFiq43buL5oS3f7A_Bde8UNhDO2N5_ZmoFJaAGMBXpf-OuZghEo5jPb11aIGCLrTS-R3PEjKEhC8qiSOc6gIu6L2IM1lrhK7i-3MrFYkp8V8Dvs94kFrz8lySyGdjng0VbgJyJoTAZnD9N-xDtARnfgfvPoO5axSWcCdGmgVwuF9FSfDQDN57OaOHplDSVhfaA5tc4t_40wgBqwbM26AqQze30QSLTudqYcEtJi4CfxZNndzigXn-ONz4smmulscBECRs0s0="
   alt: "ahc선크림 추천 TOP10 — AHC 마스터즈 아쿠아 리치 선크림 SPF50+ PA+"
