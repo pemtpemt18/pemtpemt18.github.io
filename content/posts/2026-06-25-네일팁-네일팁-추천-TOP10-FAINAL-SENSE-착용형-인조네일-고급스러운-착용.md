@@ -1,13 +1,14 @@
 ---
-title: "네일팁 추천 TOP10 — FAINAL SENSE 착용형 인조네일 고급스러운 착용"
+title: "네일팁 추천 TOP10 — 2026년 9월 기준"
 date: 2026-06-25T17:46:38+09:00
+lastmod: 2026-09-03
 draft: false
 categories: ["shopping"]
 tags: ["Top10", "shopping", "네일팁"]
 keywords: ["네일팁", "Top10", "shopping"]
 author: "pemtpemt18"
-description: "네일팁 카테고리에서 최근 데이터 기준 가장 많이 선택되는 상품 10개를 모았습니다. 네일샵에 갈 시간 없이도 아름다운 손톱을 연출하고 싶으신가요? 네일팁은 쉽고 빠르게 다양한 스타일을 시도할 수 있는 편리한 아이템입니다. 나에게 맞는 네일팁을 고르기 위해서는…"
-summary: "네일팁 카테고리에서 최근 데이터 기준 가장 많이 선택되는 상품 10개를 모았습니다. 네일샵에 갈 시간 없이도 아름다운 손톱을 연출하고 싶으신가요? 네일팁은 쉽고 빠르게 다양한 스타일을 시도할 수 있는 편리한 아이템입니다. 나에게 맞는 네일팁을 고르기 위해서는…"
+description: "네일팁 추천 TOP10 (2026년 9월). 가격·평점·로켓배송 비교와 구매 전 체크리스트까지 정리했습니다."
+summary: "네일팁 추천 TOP10 (2026년 9월). 가격·평점·로켓배송 비교와 구매 전 체크리스트까지 정리했습니다."
 cover:
   image: "https://thumbnail.coupangcdn.com/thumbnails/remote/657x657q90trim/image/vendor_inventory/17ea/526ba9e23afe88648482af578aacb2280ca5744a2310572ab93621e7c36e.jpg"
   alt: "네일팁 추천 TOP10 — FAINAL SENSE 착용형 인조네일 고급스러운 착용"
