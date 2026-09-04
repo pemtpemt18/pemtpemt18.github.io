@@ -1,13 +1,14 @@
 ---
-title: "리파괄사 추천 TOP10 — 기타 리파 ReFa CAXA M1 기기 + 가히 바운싱"
+title: "리파괄사 추천 TOP10 — 2026년 9월 기준"
 date: 2026-07-18T17:47:13+09:00
+lastmod: 2026-09-05
 draft: false
 categories: ["shopping"]
 tags: ["Top10", "shopping", "리파괄사"]
 keywords: ["리파괄사", "Top10", "shopping"]
 author: "pemtpemt18"
-description: "리파괄사 카테고리에서 최근 데이터 기준 가장 많이 선택되는 상품 10개를 모았습니다. 리파괄사는 얼굴과 바디의 탄력 관리를 돕는 프리미엄 괄사 마사지 기기로 많은 사랑을 받고 있습니다. 하지만 다양한 제품 속에서 나에게 꼭 맞는 리파괄사를 선택하기란 쉽지 않으실…"
-summary: "리파괄사 카테고리에서 최근 데이터 기준 가장 많이 선택되는 상품 10개를 모았습니다. 리파괄사는 얼굴과 바디의 탄력 관리를 돕는 프리미엄 괄사 마사지 기기로 많은 사랑을 받고 있습니다. 하지만 다양한 제품 속에서 나에게 꼭 맞는 리파괄사를 선택하기란 쉽지 않으실…"
+description: "리파괄사 추천 TOP10 (2026년 9월). 가격·평점·로켓배송 비교와 구매 전 체크리스트까지 정리했습니다."
+summary: "리파괄사 추천 TOP10 (2026년 9월). 가격·평점·로켓배송 비교와 구매 전 체크리스트까지 정리했습니다."
 cover:
   image: "https://thumbnail.coupangcdn.com/thumbnails/remote/657x657q90trim/image/vendor_inventory/ff69/c888b97c1b2d0f054659affd98b62c74694c39b9065fbd6f4ea24544658c.jpg"
   alt: "리파괄사 추천 TOP10 — 기타 리파 ReFa CAXA M1 기기 + 가히 바운싱"
